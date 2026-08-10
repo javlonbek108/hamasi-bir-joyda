@@ -1,1 +1,0 @@
-# hamasi-bir-joyda
